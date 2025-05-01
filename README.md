@@ -1,3 +1,3 @@
 # SNftChK
-SNftChK NFT SoLChK_Nature_Future_Vision 
+SNftChK Nature_Future_Vision 
 _Project
